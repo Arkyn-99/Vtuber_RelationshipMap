@@ -1,0 +1,5 @@
+Hired [[LongliveReya]] 
+GenMates [[Elizabeth Rose Bloodflame]] [[Cecelia]] [[Raora]] 
+Friends [[Mori Caliope]]
+[[Hololive]] 
+[[Holo Justice]] 

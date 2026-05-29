@@ -1,0 +1,7 @@
+Rigged by: [[KapriiMoon]]
+Friends: [[Ellie_Minibot]] [[Shoomimi]] [[Minikomew]] [[LongliveReya]] [[Honey]] [[BulbieBrooke]] 
+Sister: [[Cupidyle]] 
+Mod [[WolfwithSword]] 
+[[Balders]]
+[[Neuroverse]]  
+[[Bo's $500]] 
