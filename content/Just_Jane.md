@@ -1,1 +1,1 @@
-Friends [[Otako]] [[Asari_Kirin]] 
+Friends [[Otako]] [[Asari_Kirin]]

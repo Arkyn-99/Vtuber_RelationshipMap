@@ -1,1 +1,1 @@
-Friends [[Lunarial]] [[Beanomoly]] 
+Friends [[Lunarial]] [[Beanomoly]]

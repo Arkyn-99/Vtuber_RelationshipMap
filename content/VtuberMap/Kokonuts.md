@@ -1,3 +1,2 @@
-
-Friends: [[Shoomimi]] [[Honey]] 
-[[Neuroverse]] 
+Friends: [[Shoomimi]] [[Honey]]
+[[Neuroverse]]

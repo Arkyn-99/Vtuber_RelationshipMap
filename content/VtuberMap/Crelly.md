@@ -1,4 +1,3 @@
+Friends [[Ellie_Minibot]] [[Aquwa]]
 
-Friends [[Ellie_Minibot]] [[Aquwa]] 
-
-[[Neuroverse]] 
+[[Neuroverse]]

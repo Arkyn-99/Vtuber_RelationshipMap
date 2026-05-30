@@ -2,6 +2,6 @@
 [[Wacky]]
 [[KapriiMoon]]
 [[Jansumi]]
-[[Arkyn]]'s Favorite thing 
+[[Arkyn]]'s Favorite thing
 [[Shinsta]]
-[[AntEHMAV]] 
+[[AntEHMAV]]

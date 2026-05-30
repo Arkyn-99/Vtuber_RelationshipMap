@@ -1,3 +1,3 @@
-Partner [[Nyanners]] 
-Friends: [[Sykkuno]] 
-[[Bo's $500]] 
+Partner [[Nyanners]]
+Friends: [[Sykkuno]]
+[[Bo's $500]]

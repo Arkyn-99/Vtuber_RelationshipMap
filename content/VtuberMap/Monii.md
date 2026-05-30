@@ -1,1 +1,1 @@
-Friends [[Bao]] 
+Friends [[Bao]]

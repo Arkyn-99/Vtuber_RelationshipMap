@@ -1,8 +1,7 @@
-Sisters: [[Ellie_Minibot]] [[CerberVT]] 
+Sisters: [[Ellie_Minibot]] [[CerberVT]]
 Mom: [[ChachayourVmom]]
-Friend: [[Neurosama]] [[Hunii]] [[Shoomimi]] [[Filian]] [[Berrycrepe]] [[Vedal987]] 
-
+Friend: [[Neurosama]] [[Hunii]] [[Shoomimi]] [[Filian]] [[Berrycrepe]] [[Vedal987]]
 
 [[Balders]]
-[[Neuroverse]] 
-[[Mythic Talent]] 
+[[Neuroverse]]
+[[Mythic Talent]]

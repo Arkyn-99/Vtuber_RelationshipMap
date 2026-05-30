@@ -1,3 +1,3 @@
 Daughters irl [[Avochato]] [[Shoomimi]]
-Grandaughter [[Otako]] 
+Grandaughter [[Otako]]
 Not a Vtuber

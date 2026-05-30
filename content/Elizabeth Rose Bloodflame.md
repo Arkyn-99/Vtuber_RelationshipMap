@@ -1,4 +1,4 @@
-GenMates [[Gigi_Murin]] [[Cecelia]] [[Raora]] 
+GenMates [[Gigi_Murin]] [[Cecelia]] [[Raora]]
 
 [[Hololive]]
-[[Holo Justice]] 
+[[Holo Justice]]

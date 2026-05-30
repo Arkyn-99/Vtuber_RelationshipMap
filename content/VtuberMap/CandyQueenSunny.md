@@ -1,2 +1,2 @@
-Friends [[CaptainCaard]] [[Maple_qb]] 
-[[Codebugs]] 
+Friends [[CaptainCaard]] [[Maple_qb]]
+[[Codebugs]]

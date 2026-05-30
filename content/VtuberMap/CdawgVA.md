@@ -1,5 +1,4 @@
+Friends [[IronMouse]]
 
-Friends [[IronMouse]] 
-
-See Also [[Bubi]] 
+See Also [[Bubi]]
 Not a Vtuber

@@ -1,2 +1,2 @@
 [[Staz]]
-[[Shinsta]] 
+[[Shinsta]]

@@ -1,4 +1,4 @@
-Friends [[Ellie_Minibot]] [[Shinsta]] 
-Mods for [[YourAverageBo]] 
+Friends [[Ellie_Minibot]] [[Shinsta]]
+Mods for [[YourAverageBo]]
 
-[[Codebugs]] 
+[[Codebugs]]

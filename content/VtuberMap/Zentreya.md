@@ -1,8 +1,8 @@
-Friends [[Laimu]] [[IronMouse]] [[HeavenlyFather]] 
+Friends [[Laimu]] [[IronMouse]] [[HeavenlyFather]]
 
-[[Vedal987]] Helped with voice 
+[[Vedal987]] Helped with voice
 
-[[Socks Agency]] 
-[[Ex Vshojo]] 
-[[WrestleTuber]] 
-[[Neuroverse]] 
+[[Socks Agency]]
+[[Ex Vshojo]]
+[[WrestleTuber]]
+[[Neuroverse]]

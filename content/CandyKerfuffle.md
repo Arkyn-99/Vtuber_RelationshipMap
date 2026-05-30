@@ -1,1 +1,1 @@
-Wife: [[Otako]] 
+Wife: [[Otako]]

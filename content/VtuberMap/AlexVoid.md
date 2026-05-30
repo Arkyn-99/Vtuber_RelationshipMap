@@ -1,3 +1,3 @@
 [[Neuroverse]]
-[[Vedal_AI]] 
+[[Vedal_AI]]
 [[Reptilian Conspiracy Theorists]]

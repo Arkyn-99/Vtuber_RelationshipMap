@@ -1,3 +1,3 @@
-[[Nimi Nightmares]]  [[Mint Fantome]] 
+[[Nimi Nightmares]] [[Mint Fantome]]
 
 Not a Vtuber

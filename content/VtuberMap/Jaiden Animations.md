@@ -1,3 +1,3 @@
-Friends [[BuffPup]] [[RubberRoss]] [[Giwi]] 
+Friends [[BuffPup]] [[RubberRoss]] [[Giwi]]
 
-See Also [[Kairyu Crocodile]] 
+See Also [[Kairyu Crocodile]]

@@ -1,2 +1,2 @@
-Friends [[Otako]] 
-Mods for [[Shoomimi]] [[KapriiMoon]] 
+Friends [[Otako]]
+Mods for [[Shoomimi]] [[KapriiMoon]]

@@ -1,3 +1,1 @@
-
-
-[[Mythic Talent]] 
+[[Mythic Talent]]

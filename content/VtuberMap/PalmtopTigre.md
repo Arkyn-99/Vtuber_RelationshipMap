@@ -1,8 +1,8 @@
-Fiance: [[Otako]] 
+Fiance: [[Otako]]
 Friends: [[Wacky]] [[KapriiMoon]] [[Otako]]
-Knows: [[Hawkie]] 
+Knows: [[Hawkie]]
 
 [[birthday = everyday]]
 [[Stinky]]
-[[FamilyTree]] 
-[[!stab]] 
+[[FamilyTree]]
+[[!stab]]

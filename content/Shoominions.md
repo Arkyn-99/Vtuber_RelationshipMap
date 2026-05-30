@@ -1,4 +1,4 @@
-[[Shoomimi]] 
+[[Shoomimi]]
 Notable Members
 [[Avochato]]
 [[Otako]]

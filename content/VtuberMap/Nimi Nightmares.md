@@ -1,7 +1,4 @@
+Friends [[Saba]] [[Mint Fantome]]
 
-Friends [[Saba]] [[Mint Fantome]] 
-
-
-[[NiMINTO]] 
-See also [[Fauna]] 
-
+[[NiMINTO]]
+See also [[Fauna]]

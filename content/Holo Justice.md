@@ -1,4 +1,3 @@
-[[Gigi_Murin]] [[Elizabeth Rose Bloodflame]] [[Raora]] [[Cecelia]] 
+[[Gigi_Murin]] [[Elizabeth Rose Bloodflame]] [[Raora]] [[Cecelia]]
 
-
-[[Hololive]] 
+[[Hololive]]

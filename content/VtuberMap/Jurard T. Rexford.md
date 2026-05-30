@@ -1,4 +1,4 @@
-Friends [[Nana Asteria]] 
+Friends [[Nana Asteria]]
 [[Holostars]]
 [[WrestleTuber]]
-[[She came back to finish the job]] 
+[[She came back to finish the job]]

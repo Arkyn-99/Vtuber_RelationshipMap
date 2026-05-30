@@ -1,8 +1,7 @@
-Daughters: [[Evil]] [[Neurosama]] 
+Daughters: [[Evil]] [[Neurosama]]
 Friends [[Camilla]] [[Filian]] [[Ellie_Minibot]] [[Minikomew]]
-
 
 Helped [[Zentreya]] with voice
 
-[[Neuroverse]] 
-[[Bo's $500]] 
+[[Neuroverse]]
+[[Bo's $500]]

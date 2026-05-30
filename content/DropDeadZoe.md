@@ -1,1 +1,1 @@
-Friends [[Beanomoly]] [[RainstormWanderer]] [[Hawkie]] 
+Friends [[Beanomoly]] [[RainstormWanderer]] [[Hawkie]]

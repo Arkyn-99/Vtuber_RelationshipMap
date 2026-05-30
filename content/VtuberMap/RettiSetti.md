@@ -1,2 +1,2 @@
-Friends [[Spyral_Dev]] 
-[[Codebugs]] 
+Friends [[Spyral_Dev]]
+[[Codebugs]]

@@ -1,1 +1,1 @@
-Friends [[CaptainCaard]] 
+Friends [[CaptainCaard]]

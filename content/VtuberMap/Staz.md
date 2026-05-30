@@ -1,6 +1,3 @@
-
-
-[[Neuroverse]]  
-
+[[Neuroverse]]
 
 [[Clipper]]

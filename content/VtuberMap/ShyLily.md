@@ -1,3 +1,2 @@
-
-[[Mythic Talent]] 
-[[WrestleTuber]] 
+[[Mythic Talent]]
+[[WrestleTuber]]

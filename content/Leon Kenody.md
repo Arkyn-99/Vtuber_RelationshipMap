@@ -1,4 +1,4 @@
-[[Otako]] [[LydCatchan]] 
+[[Otako]] [[LydCatchan]]
 
-[[Mpreg]] 
+[[Mpreg]]
 Not a Vtuber

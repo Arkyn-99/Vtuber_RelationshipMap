@@ -1,1 +1,1 @@
-Friends [[Otako]] [[KapriiMoon]] 
+Friends [[Otako]] [[KapriiMoon]]

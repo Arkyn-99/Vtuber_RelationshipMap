@@ -1,1 +1,1 @@
-Friends [[Arkyn]] [[JinxUltraViolet]] 
+Friends [[Arkyn]] [[JinxUltraViolet]]

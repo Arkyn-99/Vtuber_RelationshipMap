@@ -1,2 +1,2 @@
-Friends [[Nyanners]] [[Lord Athelstan]] 
-Teammate [[Shoomimi]] 
+Friends [[Nyanners]] [[Lord Athelstan]]
+Teammate [[Shoomimi]]

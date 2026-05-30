@@ -1,7 +1,6 @@
-Genmates: [[Gawr_Gura]] [[Mori Caliope]] [[Ina'nis]] [[Kiara]] 
-
+Genmates: [[Gawr_Gura]] [[Mori Caliope]] [[Ina'nis]] [[Kiara]]
 
 [[HoloMyth]]
-[[Hololive]] 
+[[Hololive]]
 
-See Also [[Dooby]] 
+See Also [[Dooby]]

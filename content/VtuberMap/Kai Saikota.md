@@ -1,2 +1,2 @@
 [[EX Idol en]]
-[[WrestleTuber]] 
+[[WrestleTuber]]

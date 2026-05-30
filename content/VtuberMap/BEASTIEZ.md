@@ -1,5 +1,4 @@
-
 [[Kairyu Crocodile]]
-[[PiaPiUFO]] 
+[[PiaPiUFO]]
 [[Beribug]]
-[[Tori Oriane]] 
+[[Tori Oriane]]

@@ -1,8 +1,8 @@
 Maker of [[Cursed-Models]]
-Afraid of [[Gude]] 
+Afraid of [[Gude]]
 Friends [[VermillionKnell]] [[AntEHMAV]]
-Making/Made Models for: [[Ellie_Minibot]] [[Otako]] 
+Making/Made Models for: [[Ellie_Minibot]] [[Otako]]
 
-[[3D Printing]] 
-[[Codebugs]] 
-[[!stab]] 
+[[3D Printing]]
+[[Codebugs]]
+[[!stab]]

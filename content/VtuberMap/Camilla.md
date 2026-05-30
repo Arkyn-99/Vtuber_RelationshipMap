@@ -1,4 +1,2 @@
-
-
-[[Mythic Talent]] 
-[[Neuroverse]] 
+[[Mythic Talent]]
+[[Neuroverse]]

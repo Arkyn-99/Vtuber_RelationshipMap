@@ -1,3 +1,3 @@
 Mods for [[Wacky]]
 
-Friends [[RettiSetti]] 
+Friends [[RettiSetti]]

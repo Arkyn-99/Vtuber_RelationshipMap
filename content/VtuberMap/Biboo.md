@@ -1,3 +1,3 @@
-Hired [[LongliveReya]] 
+Hired [[LongliveReya]]
 
-[[Hololive]] 
+[[Hololive]]

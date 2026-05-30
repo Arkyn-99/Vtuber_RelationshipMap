@@ -1,5 +1,4 @@
-Friends [[Minikomew]] [[Vedal987]] 
+Friends [[Minikomew]] [[Vedal987]]
 
-
-[[Mythic Talent]] 
+[[Mythic Talent]]
 [[Neuroverse]]

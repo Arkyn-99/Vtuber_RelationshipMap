@@ -1,2 +1,2 @@
-[[Hololive]] 
-See also [[Nimi Nightmares]] 
+[[Hololive]]
+See also [[Nimi Nightmares]]

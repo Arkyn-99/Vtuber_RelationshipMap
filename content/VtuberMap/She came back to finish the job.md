@@ -1,2 +1,2 @@
 [[Nana Asteria]]
-[[Jurard T. Rexford]] 
+[[Jurard T. Rexford]]
