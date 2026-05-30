@@ -1,1 +1,1 @@
-Friends: [[Lunarial]]
+Friends: [[Lunarial]] 

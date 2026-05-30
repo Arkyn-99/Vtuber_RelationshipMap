@@ -1,3 +1,3 @@
-Friends [[Kairyu Crocodile]] [[Beribug]] [[Tori Oriane]]
+Friends [[Kairyu Crocodile]] [[Beribug]] [[Tori Oriane]] 
 [[Ex Vshojo]]
-[[BEASTIEZ]]
+[[BEASTIEZ]] 

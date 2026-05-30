@@ -1,4 +1,4 @@
-Friends [[Amalee]]
+Friends [[Amalee]] [[MichiMocheeve]] 
 
-[[Mythic Talent]]
-[[WrestleTuber]]
+[[Mythic Talent]] 
+[[WrestleTuber]] 

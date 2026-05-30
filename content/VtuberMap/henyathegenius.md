@@ -1,3 +1,3 @@
-Friends [[Matara Kan]] [[Zentreya]] [[Saba]]
+Friends [[Matara Kan]] [[Zentreya]] [[Saba]] 
 
-[[Ex Vshojo]]
+[[Ex Vshojo]] 

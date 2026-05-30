@@ -1,3 +1,5 @@
-Friends [[Wacky]] [[KapriiMoon]] [[Shinsta]]
 
-[[!stab]]
+Friends [[Wacky]] [[KapriiMoon]] [[Shinsta]] 
+
+[[!stab]] 
+[[Orbs]] 

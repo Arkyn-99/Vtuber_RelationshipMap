@@ -1,2 +1,4 @@
-[[Mythic Talent]]
-[[Ex Vshojo]]
+
+
+[[Mythic Talent]] 
+[[Ex Vshojo]] 

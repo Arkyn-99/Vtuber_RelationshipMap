@@ -1,4 +1,4 @@
-Child [[Shouxxie]]
-Friends [[Arkyn]]
-Commissioned by [[Otako]]
+Child [[Shouxxie]] 
+Friends [[Arkyn]] 
+Commissioned by [[Otako]] 
 has [[!stab]]

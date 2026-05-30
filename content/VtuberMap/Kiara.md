@@ -1,5 +1,5 @@
 Genmates: [[Gawr_Gura]] [[Mori Caliope]] [[Ina'nis]] [[Kiara]] [[Amelia Watson]]
-Friends [[Mint Fantome]]
+Friends [[Mint Fantome]] 
 
-[[HoloMyth]]
-[[Hololive]]
+[[HoloMyth]] 
+[[Hololive]]  

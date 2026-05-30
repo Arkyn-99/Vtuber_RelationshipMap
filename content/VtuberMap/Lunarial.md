@@ -1,3 +1,3 @@
-Friends: [[Aphrodieshaz]] [[SirenAU]]
+Friends: [[Aphrodieshaz]] [[SirenAU]] 
 
-Haunted by [[Tinselcross]]
+Haunted by [[Tinselcross]] 

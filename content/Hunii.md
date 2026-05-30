@@ -1,1 +1,1 @@
-Friends [[Minikomew]]
+Friends [[Minikomew]] 

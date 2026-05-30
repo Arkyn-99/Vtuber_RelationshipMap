@@ -1,4 +1,4 @@
-Friends [[Mori Caliope]] [[Nerissa]] [[Monii]] [[Amalee]]
+Friends [[Mori Caliope]] [[Nerissa]] [[Monii]] [[Amalee]] 
 [[Ellie_Minibot]]
 
-[[Neuroverse]]
+[[Neuroverse]] 

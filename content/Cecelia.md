@@ -1,3 +1,5 @@
-GenMates [[Elizabeth Rose Bloodflame]] [[Cecelia]] [[Raora]]
+GenMates [[Elizabeth Rose Bloodflame]] [[Cecelia]] [[Raora]] 
 
-[[Hololive]]
+
+
+[[Hololive]] 

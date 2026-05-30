@@ -1,3 +1,3 @@
-Birthday
-[[PalmtopTigre]] [[Shinsta]] [[KapriiMoon]] [[Shoomimi]]
+Birthday 
+[[PalmtopTigre]] [[Shinsta]] [[KapriiMoon]] [[Shoomimi]] 
 Not a Vtuber

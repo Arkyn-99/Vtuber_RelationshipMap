@@ -1,2 +1,2 @@
 Instigator [[Wacky]]
-Victims [[LordDavid]] [[Shinsta]]
+Victims [[LordDavid]] [[Shinsta]] 

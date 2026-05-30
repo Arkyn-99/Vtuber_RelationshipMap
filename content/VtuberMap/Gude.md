@@ -1,8 +1,8 @@
 Wives: [[KapriiMoon]] [[CuddlyRaptor]]
-Pets [[Wacky]] [[Astr0bat]]
-Stray [[Minori]]
-MyTinyBrain [[Wacky]]
+Pets [[Wacky]] [[Astr0bat]] 
+Stray [[Minori]] 
+MyTinyBrain [[Wacky]] 
 
-Scares [[Arkyn]]
+Scares [[Arkyn]] 
 
-[[FamilyTree]]
+[[FamilyTree]] 

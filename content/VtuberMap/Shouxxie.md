@@ -1,3 +1,3 @@
-Parent [[AntEHMAV]]
-Friends: [[Asari_Kirin]]
+Parent [[AntEHMAV]] 
+Friends: [[Asari_Kirin]] 
 Maybe dating: [[Otako]]

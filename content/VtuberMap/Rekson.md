@@ -1,2 +1,3 @@
-Friends [[Honey]] [[Filian]] [[Shoomimi]]
+
+Friends [[Honey]] [[Filian]] [[Shoomimi]] 
 [[Lotion]]

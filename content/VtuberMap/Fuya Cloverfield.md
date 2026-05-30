@@ -1,3 +1,3 @@
-Friends: [[JunaUnagi]]
+Friends: [[JunaUnagi]] 
 [[EX Idol en]]
-[[WrestleTuber]]
+[[WrestleTuber]] 

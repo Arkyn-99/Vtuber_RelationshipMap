@@ -1,4 +1,5 @@
-Partner [[Lord Athelstan]]
+Partner [[Lord Athelstan]] 
+
 
 [[Ex Vshojo]]
-[[Bo's $500]]
+[[Bo's $500]] 

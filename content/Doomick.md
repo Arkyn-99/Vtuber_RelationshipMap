@@ -1,3 +1,3 @@
-Friends [[Slug Slvgbucket]] [[Rat Rats0oup]] [[Harley HarlequiinJestr]] [[Scaith StarlitAbyss]] [[Asari_Kirin]] [[Wacky]] [[Shinsta]] [[Avochato]]
+Friends [[Slug Slvgbucket]] [[Rat Rats0oup]] [[Harley HarlequiinJestr]] [[Scaith StarlitAbyss]] [[Asari_Kirin]] [[Wacky]] [[Shinsta]] [[Avochato]] 
 
-[[Dead Air Collective]]
+[[Dead Air Collective]] 
