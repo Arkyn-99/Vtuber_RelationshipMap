@@ -7,7 +7,7 @@ configuration:
   analytics:
     provider: plausible
   locale: en-US
-  baseUrl: github.com/Arkyn-99/Vtuber_RelationshipMap
+  baseUrl: arkyn-99.github.io/Vtuber_RelationshipMap
   ignorePatterns:
     - private
     - templates
